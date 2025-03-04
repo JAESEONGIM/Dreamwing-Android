@@ -1,3 +1,5 @@
+[2차프로젝트.pdf](https://github.com/user-attachments/files/19072723/2.pdf)
+
 ## ✍️ 요약
 
 - 아동 사회 빈곤 문제 지속 증가
